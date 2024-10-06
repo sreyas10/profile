@@ -1,6 +1,5 @@
 # 💫 About Me:
-🙂 Hei i am sreyas<br>🙂  I’m currently learning coding and to be frank i am totally noob<br>🙂 Fun fact , i use chatgpt<br>🙂 
- Eventhough i code , i love cricket,movies,books <br>🙂 Happy to collaborate and help people in this community
+🙂 Hei i am sreyas<br>🙂  I’m currently learning coding and to be frank i am totally noob<br>🙂 Fun fact , i use chatgpt<br>🙂 Happy to collaborate and help people in this community
 
 
 ## 🌐 Socials:
